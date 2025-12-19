@@ -1,0 +1,1 @@
+# simple-profanity-filter-privacy-policy
